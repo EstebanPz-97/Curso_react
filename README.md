@@ -1,1 +1,1 @@
-# App viedo platzi
+# App video platzi
